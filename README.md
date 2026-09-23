@@ -1,1 +1,1 @@
-# sprzatanie-grob-w
+# sprzatanie-grobow
